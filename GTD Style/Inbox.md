@@ -1,0 +1,6 @@
+- [ ] Define ialos deal with the bank
+	- [ ] Amaruc?
+	- [ ] When is debt needed to be paid?
+- [ ] Owe bank 2gp
+- [ ] Expenses Project
+	- [ ] Comb through session 09.24 for new expenses

@@ -1,0 +1,24 @@
+- [ ] Spells
+	- Spells
+		- Cantrips, 4
+		- can prepare:
+			- level (6) + wis (4) = 10
+			- +Subclass spells 6... 
+			- total of 16.
+	- Healing word
+	- Sanctuary (not concentration!) oh boo they cant attack
+	- blind
+	- Want something vs mindflayers
+		- hm enhance...
+		- locate object! armoire
+		- prayer of healing
+- [ ]   +10gp amaruc debt from sydney
+- [ ]   a copperpiece
+- [ ]   copperpiece to new lebowski
+- [ ]   how does ialo feel about necromancy?
+- [ ]   make a better sheet for Rachel?
+- [ ] prank filibert and Misha for amaruc
+- [ ] write why ialo left, checking on other contracts
+- [ ] We should research the armoire!
+- [ ] Amaruc asks us to not tell anyone about werewolf changing
+	- [ ] I say I won't do anything yet I'll see

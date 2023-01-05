@@ -1,0 +1,5 @@
+- [ ] go back to barrel guy who will make shirts of like... Survived the slide
+	- [ ] gave him contract
+- [ ] would just eating meat mess your digestion?
+- [ ] Oh yeah captain wants a hold of me... Why sleep at the guard post?
+- [ ] Sydney inspiration for being sad? Good roleplay

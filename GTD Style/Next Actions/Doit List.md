@@ -1,0 +1,2 @@
+- [ ]   add mace damage
+    - [ ]   +7 attack, +4 DMG

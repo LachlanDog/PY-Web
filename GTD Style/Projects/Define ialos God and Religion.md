@@ -1,0 +1,5 @@
+- [ ] God
+- My god basis:
+	- [Waukeen | Forgotten Realms Wiki | Fandom](https://forgottenrealms.fandom.com/wiki/Waukeen?fbclid=IwAR31ymOylpHqnUMLugynF7xgKBWpYM8_fMhrRFnSHVq7UDf_fQE2_MY2q-8)
+- Name was...?
+	- Udatah
